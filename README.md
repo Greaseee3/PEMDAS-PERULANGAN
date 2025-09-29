@@ -1,2 +1,5 @@
 # PEMDAS-PERULANGAN
-Tugas no 1 - 3
+MUHAMMAD FARID KADAFI<br>
+255150307111056<br>
+TEKKOM D<br>
+Tugas berisikan no 1 - 3
